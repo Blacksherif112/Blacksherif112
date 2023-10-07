@@ -1,0 +1,1 @@
+confusion your middle name 🙂 try to put what you want to do in place make it happen take the direction you want I’m seeing someone pulling at you trying to get you to do this there way and sorry to say ones path doesn’t allways work for someone else and if person  hasn’t started doing that they will be soon just make your path dear follow your heart 💓
